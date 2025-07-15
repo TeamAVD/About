@@ -26,6 +26,7 @@ We cover a quire a few niche categories of services. This means that We focus on
 - Image and video design / editing: We can create beautifully designed logos, banners, covers as well as edit Your videos to perfection.
 - Data removal and cleansing: Almost every website or app You use collects some sort of information on You, even if it's just device fingerprinting. We can go through this data and get it removed or at the very least reduced, making Your online identity that much cleaner.
 - App / game modification and cracking: Looking for a specific app or game to suit Your needs but it requires payment? You can submit a request and We'll make sure You get what You want for free! We can also modify the app or game in question and implement new features or simply enhance existing features.
+- Music production / remixing: We can create a custom song, track or remix an existing song for You.
 
 We also offer a few other services like creating / modifying an operating system, cheap subscriptions for services and more!
 
